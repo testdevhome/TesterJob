@@ -12,7 +12,7 @@
 
 [【社招】淘宝技术质量部测试开发内推](https://mp.weixin.qq.com/s/gEPlUBazKdd63tUSL_c-9w)
 
-
+[【社招】蚂蚁金服内推社招测试岗位](https://mp.weixin.qq.com/s/j3FfgtTLZ650sQGEy6UGlQ)
 
 爱奇艺
 
